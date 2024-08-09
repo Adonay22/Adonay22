@@ -13,4 +13,7 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...✨
+- 
+
+![](https://media1.tenor.com/m/q2X-uyFfL4UAAAAd/capybara-orange.gif)
 
